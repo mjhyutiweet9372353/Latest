@@ -12,7 +12,7 @@ OnlyFans is a social media platform that allows creators to share exclusive cont
 
 Creators can offer different types of content such as photos, videos, live streams, and messages. Subscribers enjoy the benefit of receiving personalized, exclusive content from their favorite creators. The platform also allows creators to earn money through tips, pay-per-view content, and custom requests.
 
----
+---Latest
 
 ### **2. Why Supporting Creators on OnlyFans is Important**
 
