@@ -21,7 +21,7 @@ Your Patreon profile is your chance to make a lasting first impression. To stand
 #### **b. Set Up Clear and Accessible Subscription Tiers**
 One of the key elements of a successful Patreon account is having multiple subscription tiers that provide value to your patrons. Here’s how to structure them:
 - **Basic Tier**: This tier should offer access to content that’s valuable but easy to produce—things like early access, exclusive updates, or behind-the-scenes content.
-- **Mid-Tier**: This could include additional perks such as exclusive content, bonus material, or participation in polls and discussions.
+- **Mid-Tier**: This could include additional perks such as exclusive content, bonus material, or participation in polls and discussions. Latest
 - **Top-Tier**: Top-tier patrons should receive personalized rewards like one-on-one interactions, special shout-outs, private content, or even merchandise. This tier is for your most dedicated supporters.
 
 Setting up your tiers effectively allows you to cater to patrons of different budgets and ensures that everyone receives value for their subscription.
